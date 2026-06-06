@@ -1,2 +1,2 @@
 # Vendhub
-https://8k84mpaymt.preview.c35.airoapp.ai/vendors
+https://airo.ai/share/OGs4NG1wYXltdDpjMzU6YVg0VUs5TDVnbFB6
